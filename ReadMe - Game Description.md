@@ -5,4 +5,6 @@ However, mothing is as it seems. Will you be able to pierce the veil of small to
 
 Choose your own playstyle as you embark on the mystery of your career. Good cop or bad cop, the choice is completely up to you. 
 
+This game is episodic, meaning it will be gradually released in episodes. Episode one is currently available!
+
 *Best Played in 1920x1080 aspect ratio
